@@ -1,3 +1,6 @@
+### 
+
+<img src="https://media.giphy.com/media/lF8dlIJ9tWuhWGRwkn/giphy-downsized-large.gif" width=800>
 
 ## Initial Focus 
 
